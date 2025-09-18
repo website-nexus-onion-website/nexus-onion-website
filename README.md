@@ -54,4 +54,6 @@ The **Nexus onion website** continues to be a preferred choice for those seeking
 <a href="http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion"><img src="/pics/normal.webp" style="max-width: 100%;"></a>
 <a href="http://nexusxsx6orlzngdmebxoglwk6xm7ceglmljaujxqgbwyrsobm6gt6ad.onion"><img src="/pics/utility.webp" style="max-width: 100%;"></a>
 
-Update:  09/14/2025
+
+
+Update:  18 September 2025
